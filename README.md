@@ -1,1 +1,1 @@
-My first readme
+DJ MUSH 1
