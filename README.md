@@ -1,1 +1,1 @@
-DJ MUSH 1
+life is dedication
